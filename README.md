@@ -3,7 +3,7 @@
 
 ## I'm a hardworking individual with a lot i'm excited to learn and do!
 
-### You can contact me with me through my [website][website] or directly at my email: frazerjjones.mail@gmail.com
+### You can contact me through my [website][website] or directly at my email: frazerjjones.mail@gmail.com
 
 <br />
 
